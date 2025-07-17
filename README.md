@@ -1,8 +1,5 @@
 - 👋 Hi, I’m @Arcanixhades0
-- 👀 I’m interested in ai ml robotoics and automation
-- 🌱 I’m currently learning aiml
-- 💞️ I’m looking to collaborate on ml projects
-- 📫 How to reach me-s0urabreddy is my insta
+taking y'all TO the world of AGI
 
 
 <!---
