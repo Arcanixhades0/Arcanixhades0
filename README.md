@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Arcanixhades0, 
+- 👋 Hi, I’m @s0urab, 
 taking y'all TO the world of AGI
 
 
