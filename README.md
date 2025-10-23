@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @s0urab, 
-taking y'all TO the world of AGI
+- 👋 Hi, I’m @s0urab, Lets go AGI
 
 
 <!---
