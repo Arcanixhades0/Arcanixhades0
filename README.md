@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @s0urab, Lets go AGI
+- 👋 Hi, I’m @siddardha, Lets go AGI
 
 
 <!---
